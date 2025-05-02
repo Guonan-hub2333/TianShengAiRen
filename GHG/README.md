@@ -1,7 +1,5 @@
 # Girls Help Girls典范！
 
-[TOC]
-
 ## [女子偷偷修改大学室友考公岗位，警方通报：行政拘留！](https://www.bilibili.com/video/BV1SgQDYfEvC)
 
 > 做事先做人！
