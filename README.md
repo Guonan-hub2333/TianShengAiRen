@@ -8,5 +8,6 @@
 
 ## 板块
 
+- [天生就爱造谣](./yao/)
 - [Girls Help Girls](./GHG/)
 
